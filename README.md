@@ -1,8 +1,9 @@
 ### 👋 Hi there
 
 👋 Hi, I’m **Amukelani Chabani**
-🎓 Advanced Diploma in Business Management student
-💻 Systems Development graduate
+🎓 Diploma in Systems Development ✅
+🎓 Advanced Diploma in Business Management student enrolled ⭕
+💻 Systems Development graduate✅
 🇿🇦 Based in South Africa
 
 
